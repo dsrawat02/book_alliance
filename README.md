@@ -12,7 +12,7 @@
 
 Handled the social media account of Book Alliance, created a Facebook business page, and connected it with an Instagram account through Meta Business Suit. Created engaging posts and posted daily to get organic reach, and spread awareness of the account. Created instant answers to make it easy for users to resolve their queries, feel important, and be in touch with the account.
 
-![Screenshot_20240912_194611_Instagram](https://github.com/user-attachments/assets/3e2cea81-9f88-4b9d-8944-f34a0ee69713)
+![Instagram2](https://github.com/user-attachments/assets/f210145e-ebe9-4a51-b1e9-1086001a427f)
 
 
 ### Tools Used
